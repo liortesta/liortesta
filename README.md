@@ -135,3 +135,14 @@ The internet is evolving.
 
 It will not be user-native.  
 It will be agent-native.
+
+
+---
+
+## 🌐 Connect
+
+- [Website](https://liortesta.com)  
+- [X / Twitter](https://x.com/TestaLior)  
+- [YouTube](https://www.youtube.com/@LiorTesta)  
+- [TikTok](https://www.tiktok.com/@testamind)  
+- [Facebook](https://www.facebook.com/lior.tes)
